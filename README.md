@@ -1,0 +1,1 @@
+# spend4luxary
